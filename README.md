@@ -1,0 +1,2 @@
+# BS_SHOP_PRIVACY_POLICY
+Политика конфиденциальности BS_SHOP
